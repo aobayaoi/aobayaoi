@@ -1,4 +1,4 @@
-i luv aoba. i love renxaoba and noizxaoba. i enjoy koujakuxaoba and clearxaoba. i frick with koujakuxnoiz and clearxnoiz
+i luv aoba. i love renxaoba and noizxaoba. i enjoy koujakuxaoba and clearxaoba. i frick with koujakuxnoiz and clearxnoiz. I FUCKING HATE MINK
 
 ![Image](https://github.com/user-attachments/assets/927eb8eb-fc4f-4883-bd8f-41cacace4adb)
 ![Image](https://github.com/user-attachments/assets/77ac4cd8-4cbb-4849-a8e3-302485b3d278)
