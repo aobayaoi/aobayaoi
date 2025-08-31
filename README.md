@@ -1,4 +1,4 @@
-[atabook](https://siglai.atabook.org/)
+[atabook](https://siglai.atabook.org/) [rentry](https://rentry.co/noizaoba)
 
 ![Image](https://github.com/user-attachments/assets/927eb8eb-fc4f-4883-bd8f-41cacace4adb)
 
